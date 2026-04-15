@@ -1,4 +1,5 @@
-## Hi there 👋
+<img width="1500" height="500" alt="Untitled824_20260415193859" src="https://github.com/user-attachments/assets/e8e5a8c1-b6e2-40dc-aad0-c1e0a093ba25" />
+<img width="1397" height="217" alt="IMG_6878" src="https://github.com/user-attachments/assets/0ecb512e-5323-40b4-b0da-c89c9c6af372" />
 
 <!--
 **chiulll/chiulll** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
