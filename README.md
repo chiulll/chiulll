@@ -6,12 +6,10 @@
 𐂯‎　𐄈        Jjk  ,   Happy together,  alien stage  ,  Tokyo Revengers  
       Music, calling,  reading, 
 
- ꒰      𓈒           dnเ :
-     Basic DNI
-
-  “there is no curse more twisted than love"
-                rentry(s) / etc  :
-                 [rentry](https://rentry.co/taekjoolover).    [ata](https://sukugolover.atabook.org/).
+ ꒰      𓈒           dnเ : Basic DNI
+ “there is no curse more twisted than love
+             
+  [rentry](https://rentry.co/taekjoolover).    [ata](https://sukugolover.atabook.org/).
 <!--
 **chiulll/chiulll** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
