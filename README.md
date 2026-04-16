@@ -10,7 +10,7 @@
      Basic DNI
 
   “there is no curse more twisted than love"
-                །ᣟ݁       rentry(s) / etc  :
+                rentry(s) / etc  :
                  [rentry](https://rentry.co/taekjoolover).    [ata](https://sukugolover.atabook.org/).
 <!--
 **chiulll/chiulll** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
