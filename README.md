@@ -7,6 +7,7 @@
       Music, calling,  reading, 
 
  ꒰      𓈒           dnเ : Basic DNI
+ 
  “there is no curse more twisted than love
              
   [rentry](https://rentry.co/taekjoolover).    [ata](https://sukugolover.atabook.org/).
