@@ -1,6 +1,5 @@
-<img width="4681" height="1441" alt="IMG_6879" src="https://github.com/user-attachments/assets/a0f2c1ac-1f17-45b4-b5d9-a3f00bc527ff" />
-<img width="1500" height="500" alt="Untitled824_20260415193859" src="https://github.com/user-attachments/assets/e8e5a8c1-b6e2-40dc-aad0-c1e0a093ba25" />
-<img width="1397" height="217" alt="IMG_6878" src="https://github.com/user-attachments/assets/0ecb512e-5323-40b4-b0da-c89c9c6af372" />
+<img width="1500" height="500" alt="Untitled824_20260608110120" src="https://github.com/user-attachments/assets/1fc9a104-8172-41c6-a6c6-32757cd2815d" />
+
 ┣▇▇▇═──  ກαᚱ૦ ' ₛ  เntr`♡`  𓈒 ׄ 00　 ׄ
   ꒰𓏼  ◞◟ ͝ ། 𓈒 ݂  ֪him ◟ he ◟14 ݂  ׁ   ⁺  adhd   ,  shy ,  cool
 𐂯‎　𐄈        Jjk  ,   Happy together,  alien stage  ,  Tokyo Revengers  
@@ -11,17 +10,3 @@
  “there is no curse more twisted than love"
              
  [rentry](https://rentry.co/sokkaloverr).    [ata](https://takaba.atabook.org/).
-<!--
-**chiulll/chiulll** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
