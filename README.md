@@ -12,3 +12,5 @@
  “there is no curse more twisted than love"
              
  [rentry](https://rentry.co/sokkaloverr).    [ata](https://takaba.atabook.org/).
+
+ <img width="1000" height="414" alt="image" src="https://github.com/user-attachments/assets/5495748e-db56-4b33-8efe-b8b1fee8c4d1" />
